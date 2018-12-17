@@ -1,1 +1,0 @@
-# minnu_gs
